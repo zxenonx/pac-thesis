@@ -4,5 +4,5 @@ One more time, i'll be same and let u know
 that all this time i've been afraid , would'n't let it show
 Nobody can save me now, no no 
 
-## BATTLE CRY ##
+## <strong>BATTLE CRY</strong> ##
 --ID
